@@ -1,1 +1,1 @@
-# Cooler-Repo
+# Cooler-Repo "Hanging with the cool kids"
